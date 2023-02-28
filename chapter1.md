@@ -1,1 +1,1 @@
-# Chapter 1 : the blue chapter
+# Chapter 1: the red chapter
